@@ -20,11 +20,9 @@ In Shadow Battle, two or more players battle each other until only one is left s
 
 ## Final Thoughts
 
-This game isn't as entertaining as its predecessors as far as content is concerned. This game mostly shines in its multiplayer content, including entire game modes focused around it. The multiplayer aspect as well as the story and music, visual and sound effects is where this game truly outdoes itself. However, it's single-player content is fairly lacking. You can play this game solo, but you won't get the most out of it due to how focused the gameplay is circled around the multiplayer. Also, if you don't have the game boy advance with the link cable, you won't be able to access certain game modes or play this game with the most convenience. Definitely play this with friends if you have the all the things you need. If there's any other reason to link your Gameboy Advance to your GameCube, this is definitely one of them for the multiplayer and even for the single-player experience. Otherwise, if you want a more single-player focused Legend of Zelda game, this isn't the game for you.
+This game isn't as entertaining as its predecessors as far as content is concerned. This game mostly shines in its multiplayer content, including entire game modes focused around it. The multiplayer aspect as well as the story and music, visual and sound effects is where this game truly outdoes itself. However, it's single-player content is fairly lacking. You can play this game solo, but you won't get the most out of it due to how focused the gameplay is circled around the multiplayer. Also, if you don't have the game boy advance with the link cable, you won't be able to access certain game modes or play this game with the most convenience. Definitely play this with friends if you have the all the things you need. If there's any other reason to link your Gameboy Advance to your GameCube, this game is definitely one of those reasons for the multiplayer and even for the single-player experience. Otherwise, if you want a more single-player focused Legend of Zelda game, this isn't the game for you.
 
 ## Additional Information
-
-ign.com/articles/2004/06/02/the-legend-of-zelda-four-swords-adventures
 
 http://cube.gamespy.com/gamecube/the-legend-of-zelda-four-swords-adventures/520942p1.html
 
