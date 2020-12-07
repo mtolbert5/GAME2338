@@ -6,6 +6,8 @@
 
 Originally, it can only be played on the Nintendo 64. With the virtual console on the Nintendo Wii and the Nintendo Wii U
 
+https://www.nintendo.com/games/detail/paper-mario-wii-u/
+
 ### Rating
 
 My overall star rating for Paper Mario is a 4 out of 5 stars.
