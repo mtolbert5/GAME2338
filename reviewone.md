@@ -22,7 +22,7 @@ There is also an on-screen gauge to display Star Energy, which is required to pe
 
 ## Final Thoughts
 
-At the time that this game came out, the style of choice Paper Mario went for was one of the most creative in the entire franchise, creating and transforming a world that looks like paper and opens up like a pop up book when you walk into certain buildings. Even though so much time has passed since this game's debut, it still holds up as one of the best Mario games in my opinion. The game is charming, its aesthetically pleasing, and is an amazing staple in Nintendo's library. I highly recommend this game to those who enjoy single-player RPG games.
+At the time that this game came out, the style of choice Paper Mario went for was one of the most creative in the entire franchise, creating and transforming a world that looks like paper and opens up like a pop up book when you walk into certain buildings. Even though so much time has passed since this game's debut, it still holds up as one of the best Mario games in my opinion. However, keep in mind, this game can feel like you're reading a book and the dialogue can ramp up as you go further into the story. Also, some story elements can be a little tedious, especially if the player forgot an important key item in the game, forcing a backtrack in order to progress. Despite this, the game is charming, its aesthetically pleasing, and is an amazing staple in Nintendo's library. I highly recommend this game to those who enjoy single-player RPG games. If you're into more action-based strategy or you're not into the story element, I'd give this one a pass, but still recommend it if you're looking for a slower paced game.
 
 ## Additional Information
 
